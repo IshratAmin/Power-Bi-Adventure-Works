@@ -77,7 +77,7 @@ For questions, suggestions, or collaboration inquiries:
 
 ✉️ Email: aminishrat414@gmail.com
 
-🔗 LinkedIn: ishratamin
+🔗 LinkedIn: [ishratamin](https://www.linkedin.com/in/ishratamin/)
 
 
 
